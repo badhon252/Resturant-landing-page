@@ -1,1 +1,1 @@
-This was my first freelance project. It's resturant's landing page
+Hi! I'm Khalid Hossain Badhon. This is my personal Website. 
